@@ -3,16 +3,16 @@ Text from a famous Grissinbon's italian spot:
 
 -
 
-Grissinbon [🎶], Grissinbon [🎶], Grissinbon: [🎶]
+🗣️ Grissinbon [🎶], 🗣️ Grissinbon [🎶], 🗣️ Grissinbon: [🎶]
 
-Oggi porta in tavola una novità!
+🗣️ Oggi porta in tavola una novità!
 
-Due a due confezionate [🎶], son le fette biscottate! [🎶]
+🗣️ Due a due confezionate [🎶],🗣️ son le fette biscottate! [🎶]
 
-Grissinbon [🎶], Grissinbon [🎶], Grissinbon: [🎶]
+🗣️ Grissinbon [🎶], 🗣️ Grissinbon [🎶], 🗣️ Grissinbon: [🎶]
 
-Con i gongoli croccanti che son tanto appetitosi,
+🗣️ Con i gongoli croccanti che son tanto appetitosi,
 
-Con gli schiacci e i fornarelli e i gustosi fagolosi
+🗣️ Con gli schiacci e i fornarelli e i gustosi fagolosi
 
-Stuzzicano l'appetito [🎶] e la fantasia!
+🗣️ Stuzzicano l'appetito [🎶] e la fantasia!
