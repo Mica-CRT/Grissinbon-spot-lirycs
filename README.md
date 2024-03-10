@@ -15,4 +15,4 @@ Text from a famous Grissinbon's italian spot:
 
 🗣️ Con gli schiacci e i fornarelli e i gustosi fagolosi
 
-🗣️ Stuzzicano l'appetito [🎶] e la fantasia!
+🗣️ Stuzzica l'appetito [🎶] e la fantasia!
